@@ -15,4 +15,5 @@ Students who previously registered for a course or bought one will have access u
 Thanks to all who bought a course, attended my public or private classes, or bought me a coffee to thank me for the free Fundamentals course. 
 
 Have fun in your learning journey,
+
 Guy Barrette
